@@ -1,1 +1,0 @@
-# sanjana-prajapati-portfolio
